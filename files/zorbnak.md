@@ -1,8 +1,6 @@
 # Zorbnak Flibberwocket
 
-Quixotic flanges spindle the wobbulator when trundling past
-the crenellated hoosegow. Splendiferous gnats bamboozle the
-lower quorum, yet the upper quazzlepin remains unblinking.
+Lorm ipsum dolor set amit.
 
 ## Sub-flarnage
 
